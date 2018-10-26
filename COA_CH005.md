@@ -37,7 +37,7 @@ As the screen door slammed behind her, she winced. 'That might actually be too l
 
 With a sigh of relief, she walked around and removed the mostly ashed cigarette from her father's thick, wooly knuckles.
 
-"I swear to god you're going to burn this house down too one day." She muttered to herself as she snuffed it out in the ashtray. After turning off the television, she grabbed the half-empty bar glass with one hand and with the other gripped the necks of the three beer bottles scattered around it. As she reached the kitchen she inspected the brown liquor, rolling it gently around the short walls of the glass. She chuckled at the etching that read 'classy' in a floral font. She glanced once more at the overweight, half dressed trucker asleep in his recliner, then set the four empty glass on the counter and went to bed.
+"I swear to god you're going to burn this house down too one day." She muttered to herself as she snuffed it out in the ashtray. After turning off the television, she grabbed the half-empty bar glass with one hand and with the other gripped the necks of the three beer bottles scattered around it. As she reached the kitchen she inspected the brown liquor, rolling it gently around the short walls of the glass. She chuckled at the etching that read 'classy' in a floral font. She glanced once more at the overweight, half dressed trucker asleep in his recliner, then set the empty beer bottles on the counter and went to bed.
 
 ---
 
