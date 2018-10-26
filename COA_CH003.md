@@ -1,5 +1,5 @@
 # Chapter 3
-## Hiest
+## Heist
 
 Sounds of gunfire filled the room, followed by the random chatter of canned one-liners and the occasional RPG round crashing into a building. Mouse leaned back in oversized and over plush desk chair, his feet propped up on the tv stand, even though it often obscured his view of occasional in-game alerts. 
 
@@ -7,15 +7,15 @@ Sounds of gunfire filled the room, followed by the random chatter of canned one-
 
 "My bad," Mouse replied, lazily.
 
-"God! I swear," Victor's maneuvered his character around the large green box and started opening it. "Playing with you is real fucking chore you know that?" 
+"God! I swear," Victor maneuvered his character around the large green box and started opening it. "Playing with you is a real fucking chore you know that?" 
 
-"Well, there is a solution to that," Mouse chuckled as he lined aimed down the sights of his rifle, tracing the movements of Victors helmet from behind. Mouse smiled as felt the faint gauged the play in the trigger button, that little gap between the switch on the controller board and the plastic casing meant to engage it. Just then, his screen flashed red, and the camera zoomed out showing his avatar's body falling limp.
+"Well, there is a solution to that," Mouse chuckled as he lined aimed down the sights of his rifle, tracing the movements of Victor's helmet from behind. Mouse smiled as gauged the play in the trigger button, that little gap between the switch on the controller board and the plastic casing meant to engage it. Just then, his screen flashed red, and the camera zoomed out showing his avatar's body falling limp.
 
 Tossing the controller aside, he smirked and stood up with a stretch, then checked his watch. 4am. 
 
-"Fuck!" Came victors voice again, "They got me!"
+"Fuck!" Came Victor's voice again, "They got me!"
 
-From outside of his window, Mouse heard the thump of a car door. "Yep, me too! Welp, I think that's it for me." Mouse replied as he walked over to his window and pulled on one of the white plastic blind blades. He watched as his dad meandered of the car, stared at the front door for a moment, then turned away and headed towards the garage.
+From outside of his window, Mouse heard the thump of a car door. "Yep, me too! Welp, I think that's it for me." Mouse replied as he walked over to his window and pulled on one of the white plastic blind blades. His dad heaved a box out of the trunk, then waddled towards the garage.
 
 "Yeah, me too. Hey, you going to class tomorrow? Think anymore about that thing?"
 
@@ -25,7 +25,7 @@ Mouse wheeled the chair out of his way and slid it up to his desk, which was too
 
 Mouse sighed, "I just don't see the point." 
 
-"The point? Cash! Cash is always the point!" Victor was getting frustrated. He wasn't lying when he said he couldn't do it without Mouse. He needed someone smart enough to access the schools servers and Mouse could do it in his sleep. "Listen, you're the guy I know who can get over the school's firewall, and the-"
+"The point? Cash! Cash is always the point!" Victor was getting frustrated. He wasn't lying when he said he couldn't do it without Mouse. He needed someone smart enough to access the school's servers and Mouse could do it in his sleep. "Listen, you're the guy I know who can get over the school's firewall, and the-"
 
 "Through. Or around. You can't go over a firewall," Mouse droned, as he stroked power button that would finally afford him some peace and quiet.
 
@@ -57,7 +57,7 @@ Turning her gaze to the far side of the student parking lot, she saw a pair of h
 
 Carla slapped the roof of the car, causing the other two jump, and shot a fiery look windshield.
 
-"Shh!" Victor snapped, then went back to his intent inspection of the approaching vehicle. Following his gaze, Carla finally noticed as well. A moment later, the clamour of rock music echoed across the empty lot, growing louder and louder as it closed the distance between them. Victor rubbed his forehead with his palm. "Moron," he muttered to himself.
+"Shh!" Victor snapped, then went back to his intent inspection of the approaching vehicle. Following his gaze, Carla finally noticed as well. A moment later, the clamor of rock music echoed across the empty lot, growing louder and louder as it closed the distance between them. Victor rubbed his forehead with his palm. "Moron," he muttered to himself.
 
 As the truck pulled up next to them, Carla jumped down and made her way to Mouse's window as it rolled down in a stutter as he spun the crank by his knee.
 
@@ -87,9 +87,9 @@ Stunned, she turned to the boy as he leaned off and on the side of old Camry, ca
 
 "Yeah," she turned and made her way back to her seat on the hood, ending Mouse's little jumping party.
 
-"Is it-" he paused, realizing he hadn't thought that one all the way through in time and winced.
+"Is it-" he winced, realizing he hadn't thought that one all the way through.
 
-"It's not terminal." She assured him, "But it's-," she adjusted her posture on the hard metal hood which popped metallically as she shifted into a cross-legged position and pulled her ankles tight. "She can't leave the house and stuff like that without a lot of work. So when we all go out it's a pretty big deal. She loved it, though." Wispy leaned forward as she recalled the event. "She loves that old Disney movie Frozen, but not like the princesses or anything," she chuckled. "You should have seen her, mom made her the dopiest looking snowman costume you've seen. But it took so long she couldn't really test it until it was too late, so when we finally went tricker treating she couldn't bend her arms or anything because the cardboard lining would catch her backpack." She fought to contain her laughter as she continued, "so we'd walk up to the peoples houses and say 'trick-or-treat' and then watch as she would spin her whole body like a real snowman as she tried to position her candy back for the people to drop the treats into." The recollection caused a snort of laughter which immediately and painfully brought her back to the present moment. She snapped her mouth shut with both hands in horror.
+"It's not terminal." She assured him, "But it's-," she adjusted her posture on the hard metal hood which popped metallically as she shifted into a cross-legged position and pulled her ankles tight. "She can't leave the house and stuff like that without a lot of work. So when we all go out it's a pretty big deal. She loved it, though." Wispy leaned forward as she recalled the event. "She loves that old Disney movie Frozen, but not like the princesses or anything," she chuckled. "You should have seen her, mom made her the dopiest looking snowman costume you've seen. But it took so long she couldn't really test it until it was too late, so when we finally went tricker treating she couldn't bend her arms or anything because the cardboard lining would catch her backpack." She fought to contain her laughter as she continued, "so we'd walk up to each house and say 'trick-or-treat' and then spend the next 5 minutes watching her spin her whole body like a real snowman with sticks for arms as she tried to position her candy back for the people to drop the treats into." Picturing the image in her mind caused a snort of laughter which immediately and painfully brought her back to the present moment. She snapped her mouth shut with both hands in horror.
 
 Mouse chuckled, a broad smile on his face. As her pulse quickened, she didn't know what to do. To afraid at what might happen if she opened her mouth again, sat, frozen on the hood of the car, eyes wide, as her world crumbled around her.
 
@@ -107,9 +107,9 @@ Mouse chuckled, a broad smile on his face. As her pulse quickened, she didn't kn
 
 "Ok, the final grades are recorded in ink, we can't change those, but the individual assignment grades are logged in pencil. All we need to do is change enough of the assignments to result in the desired grade, then update the final grades in the system to reflect it." Victor pulled out a piece of paper from his pocket and unfolded it, the passed it to Carla who held her phone up as a flashlight over the whole affair. With a few flicks of the hand, she'd managed to get it opened enough to read. "Ok, who's first?"
 
-"Jace-" Carla squinted as she tried to make out the chicken scratch that was Victors handwriting, "couldn't you have just printed this out?" 
+"Jace-" Carla squinted as she tried to make out the chicken scratch that was Victor's handwriting, "couldn't you have just printed this out?" 
 
-"I don't trust computers. The only paper trail you can control is the one made with real paper!" Victor replied, as he sat impatiently, pencil primed and ready to start making edits. Carla shot him a look, then exaggerate her gaze back and forth between the book that laid open in front of them and her angry conspirator until he got the point. "Just read it!"
+"I don't trust computers. The only paper trail you can control is the one made with real paper!" Victor replied as he sat impatiently, pencil primed and ready to start making edits. Carla shot him a look, then exaggerate her gaze back and forth between the book that laid open in front of them and her angry conspirator until he got the point. "Just read it!"
 
 "Jace Carter," she replied. "85." Victor pulled his phone out of his pocket and tossed it on the opposite page, then began typing into his calculator. 
 
@@ -119,11 +119,11 @@ After a moment, Victor spoke up. "Ok, Mouse, set Jace to 84.6"
 
 "I don't get it, won't they still see the final grade in the book and no somethings up?" Wispy asked across the hood to the two would be accountants at the back of the car. 
 
-"Nah," Mouse replied as he aimlessly gathered a pile of small pebbles with this foot. "Most likely they won't even check, but if someone does, and they re-run the numbers, they'll made a mistake in writing it down and move on." 
+"Nah," Mouse replied as he aimlessly gathered a pile of small pebbles with this foot. "Most likely they won't even check, but if someone does, and they re-run the numbers, they'll assume they made a mistake in writing it down and that someone else caught it and just move on." 
 
 "Ok, set Stephanie Ann to 98.2."
 
-"That's pretty smart," Wispy replied, a bit of awe in her voice. She hadn't really been paying attention to most of what Carla had talking about, save for a key name. "Did you come up with that?" She asked the boy approaching the truck.
+"That's pretty smart," Wispy replied, a bit of awe in her voice. She hadn't really been paying attention to most of what Carla had talked about, save for a key name. "Did you come up with that?" She asked the boy as he approached the truck.
 
 "Pfft," Victor scoffed from behind her. 
 
@@ -166,18 +166,6 @@ Suddenly, Wispy stopped rigid. Confused, Carla noticed she was staring far past 
 "GO!" She yelled. Victor looked into the rearview, which was filled with blinding light. Reaching over the girl that clawing at his lap, he grabbed the wheel and hammered down hard on the gas peddle. The car squealed as it left the parking space, causing the rear door to slam shut. 
 
 "Hands where I can see them!" The officer ordered as he approached the pickup, the light now focused on the lone remaining teenager who stood leaned against the bed of his truck, hands low, but palms out. Another squeal echoed from the far side of the lot as the Camry rounded the corner and entered the highway.  Then silence once more, save for the labored breathing of a confused officer and the fluttering of spreadsheets across the mostly empty parking lot.
-
-
----
-
-
----
-
-
---- 
-
-
----
 
 
 

@@ -5,7 +5,7 @@ After what felt like an eternity, the stop light switched to green. But the adre
 
 "Your folks still up?" He asked, breaking a silence that had lasted for miles. "Need me to drop you off around the back?"
 
-Carla peered around the head rest at the front window, a disco of muted colors flashing from the inside.
+Carla peered around the headrest at the front window, a disco of muted colors flashing from the inside.
 
 "Nah, it's fine." 
 
@@ -21,9 +21,9 @@ With a sigh, Victor pulled the rest of the way up to the driveway and Carla hopp
 
 "Sorry about that, I kinda froze back there." 
 
-"Hey, remember what I said. Don't do anything stupid-"
+"Hey, remember what I said. Don't do anything st-"
 
-"Shut up, Victor!," she said, interuppting the same axiom he'd repeated since burning out of the parking lot. "This whole damn thing was stupid."
+"Shut up, Victor!," she said, interrupting the same axiom he'd repeated since burning out of the parking lot. "This whole damn situation is stupid."
 
 "What are you pissed at me for? It's your fault we're in this mess! If you hadn't," but before he could finish, Carla slapped stormed off, pounding the hood of the car as she passed it.
 
@@ -33,11 +33,11 @@ With a sigh, Victor pulled the rest of the way up to the driveway and Carla hopp
 
 ---
 
-As the screen door slammed behind her, she winced. 'That might actually be too loud,' she thought to herself. Across the living room, a the back of a large recliner rocked back and forth, slivers of an infomercial spilling over into view. She could see  a wisp of smoke trailing off of the far arm rest.
+As the screen door slammed behind her, she winced. 'That might actually be too loud,' she thought to herself. Across the living room, the back of a large recliner rocked back and forth, slivers of an infomercial spilling over into view. She could see a trail of smoke trailing off of the far armrest.
 
-With a sigh of relief, she walked around and pulled the mostly finished cigarette gently from the mans hand thick, wooly knuckles.
+With a sigh of relief, she walked around and removed the mostly ashed cigarette from her father's thick, wooly knuckles.
 
-"I swear to god you're going to burn this house down too one day." She muttered to herself as she snuffed it out in the ashtray. After turning off the television, she grabbed the half empty bar glass with one hand, and slipped the fingers of her other hand around the three beer bottles peppered around it. As she reached the kitchen she inspected the brown liquor, glanced once more at the overweight, partially dressed trucker in the recliner, then tossed it back and left the four empty glass on the counter.
+"I swear to god you're going to burn this house down too one day." She muttered to herself as she snuffed it out in the ashtray. After turning off the television, she grabbed the half-empty bar glass with one hand and with the other gripped the necks of the three beer bottles scattered around it. As she reached the kitchen she inspected the brown liquor, rolling it gently around the short walls of the glass. She chuckled at the etching that read 'classy' in a floral font. She glanced once more at the overweight, half dressed trucker asleep in his recliner, then set the four empty glass on the counter and went to bed.
 
 ---
 

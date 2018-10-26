@@ -12,7 +12,7 @@ Turning his gaze back to the lone captive, Porter sighed. "Jake, we've contacted
 
 "That's a surprise," he mumbled. Porter glanced at the security guard behind him, but he didn't seem the notice the subtle progress and had moved on to inspecting his flashlight. 
 
-"I was saying," Porter continued, "We'd prefer not to call the authorities as well, but we do have footage of two students breaking and entering this office." Mouse looked around the room, settling on the tattered grade book on the principals desk. Behind it, a brightly lit digital picture frame stood out obnoxiously. "Now, it's obvious to me that neither of the burglars was you. But if you don't cooperate here, you could be looking at a lot more trouble than just trespassing." Porter pulled up a chair from the side of the room and sat, coming down to eye level with the boy across from him.
+"As I was saying," Porter continued, "We'd prefer not to call the authorities as well, but we do have footage of two students breaking and entering this office." Mouse looked around the room, settling on the tattered grade book on the principal's desk. Behind it, a brightly lit digital picture frame stood out obnoxiously. "Now, it's obvious to me that neither of the burglars was you. But if you don't cooperate here, you could be looking at a lot more trouble than just trespassing." Porter pulled up a chair from the side of the room and sat, coming down to eye level with the boy across from him.
 
 "Mouse," A flash of surprise. Principal Porter knew the value of spending a little extra time listening to how the students in his school interacted with one another. Picking up a nickname here and there paid dividends when used properly. "You're a bright kid. Don't take the fall for something you didn't do-"
 
@@ -50,7 +50,7 @@ Mouse glanced at the grade book once again, then shrugged.
 
 Mouse crossed his arms and bit his lip as he looked away once again, the revolving digital picture frame drawing his attention once more.
 
-"You have no idea what you're doing, do you? No of course not. You're a child. You don't know a damn thing." Another photo. This time of two small children laughing as Mr. and Mrs. Porter wrestle them into the grass, an overly enhanced sunset behind them. "You know, life isn't all about you, Jake. There are-," he paused as he searched for the words, "some that have it a hell of a lot worse than you. Yet here you are, throwing your life away with pranks, or whatever the hell this is."
+"You have no idea what you're doing, do you? No of course not. You're a child. You don't know a damn thing." Another photo. This time of two small children laughing as Mr. and Mrs. Porter wrestle them into the grass, an overly exposed sunset behind them. "You know, life isn't all about you, Jake. There are-," he paused as he searched for the word, "some that have it a hell of a lot worse than you. Yet here you are, throwing your life away with pranks, or whatever the hell this is."
 
 Jake huffed, then sank lower in the stiff chair, he could see on the edge of his peripheral vision his father open the door a final time and step through. The frame cycled once again. Another staged image, this time of toddler running, arms outstretched as a pair of legs stepped out of frame. 
 
