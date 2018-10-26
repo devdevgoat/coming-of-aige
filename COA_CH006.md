@@ -1,6 +1,7 @@
 # Chapter 6
 ## Take Me With You
 
+
 3,163,202,007. 
 
 AI-63 watched as the blue blocks attacked a cluster of grey cubes that had retreated back to a small peninsula, seeming unaware that their SEA fairing counterparts had long been destroyed. But he wasn't concerned with the exercise, only the impossibly large number of times he'd played this game. That and the meaning of eternity. As the last of the grey blocks dissolved, he waited listlessly for the readout of his results. The most painful part to him, since he already knew the results. Listening to the system rattle them off, like the verbal equivalent of a printing calculator, simply added insult to injury.

@@ -1,6 +1,7 @@
 # Chapter 7
 ## New Friends
 
+
 Mouse ran his fingers through hair and scratched hard. "What the hell?" Every single test he'd run failed. It was like the chips inside weren't chips at all. Nothing traditional worked. Half the time if he committed some logic it would just disappear a second later. 'Perhaps the power source is unstable?' He wondered, as he crossed his arms and twirled around on the workshop stool. Then, the thud of a car door brought back to reality with a jolt. Checking the time, he cursed. '10:30? Already?'
 
 He stood up, making himself a bit dizzy. He suddenly realized it'd been twelve hours since he'd gotten home and he hadn't really left the garage since. Slowly, the anger from the night before bubbled back to the surface. As he approached the window, he wondered what he would say his father. Glancing back at the strange machine on the table, he briefly considered just burying the hatchet for the time being. Then he shook it off and glared out the window. But as he watched Victor knock on the kitchen door, he was surprised. He collected himself, then stepped out to greet his three visitors, failing to notice the tiny green light that blinked to life in front corner of the black cube as he passed.
