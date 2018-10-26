@@ -33,7 +33,7 @@ With a sigh, Victor pulled the rest of the way up to the driveway and Carla hopp
 
 ---
 
-As the screen door slammed behind her, she winced. 'That might actually be too loud,' she thought to herself. Across the living room, the back of a large recliner rocked back and forth, slivers of an infomercial spilling over into view. She could see a trail of smoke trailing off of the far armrest.
+As the screen door slammed behind her, she winced. 'That might actually be too loud,' she thought to herself. Across the living room, a large recliner rocked back and forth, causing slivers of an infomercial to spill over into view. A steady stream of smoke slowly rose from the arm rest, its source just out of sight.
 
 With a sigh of relief, she walked around and removed the mostly ashed cigarette from her father's thick, wooly knuckles.
 
