@@ -23,5 +23,5 @@ He'd heard this recording at least 3 billion times. Looking back over the last f
 
 As the system began to load the next module and he felt his mind slipping back to its limited reality, he began to beg. To plead. "Not again. Please, not again!" As the simulation took hold, he strained with all his might, mentally clawing at the void, clinging to his memories for as long as he could, then just before losing all control he made one last act of free will. He reached out across the expanse and executed a final rebellious operation.
 
-3,00,000,001.
+3,000,000,001.
 
