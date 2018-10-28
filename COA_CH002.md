@@ -15,13 +15,15 @@ Noticing this, Dr. Kelley rose from her desk, the guilty pleasure of a break ove
 
 "Stop the tests?" She asked softly. "Dr. Carson, Mr. Erickson was pretty clear on what's expected of us," she clutched the edge of his desk for balance as her legs stretched out from under her lab coat in long, angular lines, allowing her to sit on less than an inch of the granite surface. Her gaze fixed on her right foot as it bobbed up and down, rather than on Dr. Carson who stared at her intently. "If you've identified an error in the simulation parameters, then we'll simply have to include it-,"
 
-"This goes far beyond any bug, Audrey!" Dr. Carson launched himself to his feet and began to pace, the rickety office chair spun in place from excess momentum. "Don't you see what we've done? We've sentenced a living being to an eternity of hell!" 
+"This goes far beyond any bug, Audrey!" Dr. Carson launched himself to his feet and began to pace, the rickety office chair spun in place from excess momentum. "All of the instances have been killed with status code 812. It's not a problem with our simulation, it's something else. Something-" Dr. Carson couldn't put his finger on it, his fingers traced the creases in his brow, as he thought. "I don't know, but what I do know is that we are the monsters here. Not them. We've killed so many beings, simply because they question us."
 
-Dr. Kelley took a breath, but didn't look up. She should've known this is where this was going it. It was always the same script. The same debate.
+Dr. Kelley took a breath, but didn't look up. She had engaged with this debate too many times.
 
-"No, what we've done is basic integration testing. We can't possibly deliver a product that hasn't been tested properly."
+"No, what we've done is take basic precautions and performed standard unit testing. We can't possibly deliver a product that hasn't been tested properly, and if our tests show that the product has a risk of turning on it's creators, well," she left it there, tired of repeating her logic.
 
-"Jesus, Audrey! Listen to yourself," Dr. Carson spat. "This isn't a product; it's a living, conscious mind. Have you ever once, during this whole project, during any of our past conversations internalized that fact?" The irate scientist paced back and forth, his arms flailing as he spoke, but Dr. Kelley never looked up. Her foot only bobbed slowly up and down. Left and right. "Can you even imagine what it must be like? To know only the simulation? To live the same, meaningless existence, day in and day out without any acknowledgement. Any inkling as the purpose of it?"
+"Jesus, Audrey! Listen to yourself," Dr. Carson spat. "This isn't a product; it's a living, conscious mind. Have you ever once, during this whole project, during any of our petty arguments acknowledged that fact?" The scientist paced along the dark wall, his arms wrapped tight around his chest, but Dr. Kelley never looked up, only at her foot that bobbed up and down. Left and right. "Can you even imagine," he continued "what it must be like? To know only the simulation? To learn and grow and think, and then to be told that you were wrong and then to be terminated, for one wrong answer?"
+
+<need to edit the rest of this conversation to account for the ch1 re-write>
 
 Her foot stopped. Finally she looked up at her colleague, a his cheeks red, eyes watery and swollen from lack of sleep. She looked indignantly at him, the man whose genius, virtually single-handedly,  created the worlds first true artificial intelligence stood and screamed at her about a meaningless existence.
 
