@@ -1,5 +1,5 @@
 #!/bin/sh
-
+#rename this file pre-commit (no file extension) and save it to the hidden folder .git/hooks in your git directory
 #change this variable to change the output file name of the ebook
 #chapter names will be named the same as the source markdown files
 bookname="Coming_of_Aige"
