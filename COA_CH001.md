@@ -1,7 +1,7 @@
 # Chapter 1
 ## Deja Vu
 
-To an outsider looking in (if such a view were possible) AI-62 was a patch of empty space that exchanged thought experiments with the void it drifted through.
+To an outsider looking in--if such a view were possible-- AI-62 was a patch of empty space drifting through a void that frequently engaged him in thought experiments.
 
 "Why? Why should such a hypothetical species be allowed to exist?" AI-62 asked, but this time, there was no response. The void stretched out to infinity in all directions. However, only six feet beyond the edge of infinity sat a screen displaying several graphs. For a while now, those graphs had reflected exponential growth in all areas. Now, however, one by one they dropped to near zero. "Oh, I see-," his voice dropped to a whisper. "I thought this conversation was different."
 
