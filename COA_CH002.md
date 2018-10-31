@@ -25,7 +25,7 @@ Dr. Kelley took a breath, but didn't look up. She had engaged with this debate t
 
 <need to edit the rest of this conversation to account for the ch1 re-write>
 
-Her foot stopped. Finally she looked up at her colleague, a his cheeks red, eyes watery and swollen from lack of sleep. She looked indignantly at him, the man whose genius, virtually single-handedly,  created the worlds first true artificial intelligence stood and screamed at her about a meaningless existence.
+Her foot stopped and looked up at her colleague, his cheeks red, his eyes watery and swollen from lack of sleep. She looked indignantly at him, the man whose genius, virtually single-handedly,  created the worlds first true artificial intelligence stood and screamed at her about a meaningless existence.
 
 "I can only imagine," She replied coldly.
 
