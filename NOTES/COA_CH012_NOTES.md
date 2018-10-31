@@ -1,0 +1,4 @@
+# Chapter 12
+## Notes (AND SPOILERS)
+
+Victor steals Aige and takes him home. Aige chastises him and give him a hard time. In the car, Victor relay's his problem and need to come up with 500 bucks in the next 24 hours. Victor tells aige he wants him to predict the stock market, which he can, but requires a 2-5 year investment period at a minimum. Retail arbitrage would be easy, but again, takes a few weeks. He suggest robbing an ATM, but Victor doesn't want to do anything illegal, he just wants to pull his weight the best he can. Aige promises he'll come up with something. The next morning he says he has an idea and a plan, and to just go to school and they can collect their money at 4 o'clock. 
