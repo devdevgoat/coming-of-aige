@@ -1,5 +1,5 @@
 # Chapter 10
-## ...
+## Good Questions
 
 <- 9:07 ->
 "What the hell was that all about?" Victor asked as they pulled down the dirt road. 
