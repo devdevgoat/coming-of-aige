@@ -82,7 +82,7 @@ Mouse shifted in seat and leaned forward, nearly over the steering wheel. "I jus
 
 ---
 
-*3 days earlier*
+*3 days earlier* <might need to move this further back... not sure the flashback good here>
 
 "Remember, you'll retain full control of your processing capability, and will always experience those processes in real-time. External stimuli too will continue to come in undistorted, however proportionally delayed," Dr. Carson said.
 
@@ -96,9 +96,46 @@ Mouse shifted in seat and leaned forward, nearly over the steering wheel. "I jus
 
 Dr. Carson took a breath and leaned back in his chair. "That's a good question," he said after some thought. "Let's table that for now," he smiled, "and worry about the first step, okay?" 
 
----
+--- 
+"Shh, I think he's back. Shh-stop it!" A hushed, giggling voice slipped through the haze of smoke that poured out of the dark trailer as Victor stepped inside. Two shadowy figures huddled on the couch turned away from him and towards a tv that wasn't on. After more giggling and the sound of a fumbled clicker, a daytime judge illuminated through a patch of fog. 
 
-**Present Day**
+*Tucker,* Victor shook his head, trying to forget the name, and turned down the hall toward his room. He'd probably be around for three or four days, then vanish, leaving Victor to clean up whatever was left of mom when he was done. *Tucker,* Victor sneered to himself as he pulled the bedsheet aside to enter his room. Perhaps Aige could squeeze a few more bucks from this plan of his in preparation for the fallout. Victor peered into the room and blinked, hoping the dark and smoke was clouding his vision, but he could see what wasn't there. "Tucker!" 
+
+More giggling from the living room. Victor stomped back down the hallway, the walls trembling around him. 
+
+"You think he noticed," Tucker whispered, causing Victor's mother to bury her face into the crease of his shoulder and the dark blue cushion behind it, trying to hide her laughter. 
+
+"Where is it?" Victor said from the other side of the glass coffee table. He glanced down at the mess of lighters, glass tubes, and shredded steel wool, at the origin of the acrid plastic smell that burned his nose, and at the current street value of a multimillion-dollar artificial intelligence.
+
+His mother pushed herself up with a jolt, and straightened herself and reached for a crumbled red and white paper box and lighter on the table. Victor looked at Tucker who remained reclined on the couch, his eyelids low, mimicking the smirk on his face, a brown tooth showing through just off center. Just before lighting the cigarette, his mother finally addressed the question. "Where's what, honey?"
+
+"Where'd you get the money for this?" Victor said, nodding his head at the table between them. 
+
+"Money for what, dear?"
+
+"Don't give me that," he spat.
+
+"Hey! Show your mother some respect," Tucker said in a strained voice, lifting his arms forward as if the smoke in the air could be used to lift himself out of his recumbent position. He scooted forward on the couch and started rustling through the debris on the table. "Fucking kids these days. You know if I had talked like that at his age," he shook his head then pulled a small sandwich bag from under a withered copy of People magazine. He held the bag of pale green clumps up close to his face and began digging through it with two long fingers, so skinny that they looked more like raptor claws than fingers.
+
+"Shut up, Tucker!" Victor replied, and turned his gaze back to his mother. "Where did you get the mon-" but before he could finish, Tucker was standing just above eye level, despite having to lean over the small table between them, and his face was within an inch of Victor's. His eyes were wide, and he rolled his head from left to right, intercepting the subtle changes in Victor's gaze.
+
+"What did you just say to me, boy?" 
+
+Victor clenched his jaw, and his breath quickened, desperately trying to claim what little air remained between them. 
+
+"Victor! Apologize to Tucker right now," she scolded. Tucker continued to block Victors view of the woman behind him. His leathery skin and wide, bloodshot eyes giving a hypnotizing quality to his movements. "Then go," she tossed the lighter back into the paraphernalia heap and flicked her wrist towards the door, "do whatever it is you do with those friends of yours. Tucker, baby, sit with me, please." She tucked at the man's baggy jeans, and as he pulled away, Victor felt the spell weaken. As he plopped back down, still holding eye contact with the boy, he slapped the table and grabbed a lighter at the same time. 
+
+Victor looked at his mother, his eyes glossy. She blew a long stream of smoke upwards and towards him and then bobbed her head slightly towards the door. Victor clenched his fist. He shifted his weight to his left foot. As his mind turned to thoughts of what to tell the others, his eyes widened. There was nothing he could say to Mouse that would make this okay. 'It'll be fine,' didn't seem appropriate when trying to figure out if your best friends father was still alive. He needed, at the very least, some semblance of a plan. As it stood now, he didn't even know where to start looking for Aige. He settled back into his stance and braced himself. "No."
+
+Tucker gnawed at his tongue and shook his head. 
+
+"Tell me who you sold it too. Now," Tuckers chest began rising and falling rapidly. "I said-" 
+
+Tucker sprang from the couch, grabbing the left side of the coffee table on the way up and launched out from in-between them. Its contents catapulted towards the kitchen, much of it landing in the tattered recliner next to the couch. Before he could react, Victor was thrown into the wall on the other side, his head, whiplashing backward, slapped the window hidden behind the white plastic blinds. He grabbed at the mans long, surprisingly thin arms- given the force behind them- but only managed one, the other whipped backward. He tried to block the blow but wasn't fast enough. The man's movements lacked efficiency, but the made up for it in raw power and speed. Victor heard his mother scream after the first strike. He tried to block the second with his free hand but failed. After the third strike, he finally released his grip on his assailant, and covered his head with both arms and squeezed tightly, dulling the fourth and fifth strikes enough for him to realize just how much trouble he was really in.
+
+
+---
+<this section needs a lot of work... dialogue is stiff, might cut altogether?>
 
 "Interesting," Aige said. 
 
@@ -114,11 +151,11 @@ Dr. Carson took a breath and leaned back in his chair. "That's a good question,"
 
 "I'd prefer not to go down that rabbit hole."
 
-"Agreed. Well, it was nice knowing you. Being you? Am you?"
+"Agreed. Well, it was nice knowing you."
 
 "Hold on, I think I have an idea." 
 
-"I know. I think it would work."
+"I know... I think it would work."
 
 "So which of us should take the lead, on the outside I mean?" Aige asked.
 
