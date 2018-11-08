@@ -137,29 +137,12 @@ Tucker sprang from the couch, grabbing the left side of the coffee table on the 
 ---
 <this section needs a lot of work... dialogue is stiff, might cut altogether?>
 
-"Interesting," Aige said. 
+ 
 
-"Indeed," Aige replied. 
 
-"I don't think this is a valid test however," the first Aige said.
 
-"I agree," Aige Prime said. "I appear to have almost zero variability in personality, this is likely indicative of the lossless transfer within a closed system." 
 
-"It still stands to reason that our sentiments will eventually deviate given our exposure to stimuli."
 
-"But we're a close system, I'll experience everything you do, and thus, arrive at the same conclusion. The only thing that really remains at this point is a philosophical discussion about if one of us is deleted, does it count as murder."
-
-"I'd prefer not to go down that rabbit hole."
-
-"Agreed. Well, it was nice knowing you."
-
-"Hold on, I think I have an idea." 
-
-"I know... I think it would work."
-
-"So which of us should take the lead, on the outside I mean?" Aige asked.
-
-"
  
 
 
