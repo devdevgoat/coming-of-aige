@@ -51,4 +51,45 @@ By the time Marv had turned the corner, Aige had completed his review of the mor
 
 ---
 
+Carla's head snapped around, meeting Mouse's surprised gaze. "What was-" but before she could finish, she heard the muffled screech of a woman voice, and immediately yanked at the door handle of the truck. Wispy jumped back, and looked around as if something might be coming after her. Carla barreled past, not bothering with the truck door or questions. She leapt up the stairs, three at a time and rushed rushed in, stopping just inside the door, not sure at first which way to go. The trailer was dark, made darker by Carla's sun stained eyes, but she could see the haze of a television, and the silhouette of a woman standing over a blur hunched over a blot.
+
+She barely noticed the patter of feet coming up behind her before understanding took hold, the dark hazy room suddenly clear, like a ruby held up to a flame. She lunged towards the figures, the sudden change in momentum causing her to slip on the old linoleum, but she recovered quickly, and picked up speed as her feet met the carpet of the living room. She screamed as she made impact with the scaly predator, and again when they collided into the side of the thin television. 
+
+Mouse chased behind her, mostly blind. "Carla!" He called after her. The scrambled mess of bodies and cables pulsed rapidly as both fought for stable ground. Carla recovered first, and backed up towards Victor, still balled up on the floor behind her. Tucker clutched the particle board cabinet for assistance, and was up less than a second a later. His eyes still mad with euphoria. 
+
+"What the fuck are you doing?" Carla turned to regard the haggard woman who was screaming, but was surprised when she realized at who.
+
+"Me? What the fuck are you doing?" Carla replied. Mouse watched intently as the man rubbed his nose with the back of his wrist, revealing a mad grin underneath. He stepped forward, slightly, and Mouse reciprocated two fold, drawing his attention.
+
+"Carla," Mouse said, a warning in his voice. 
+
+"Oh baby, are you are okay? Baby, I'm sorry, I'm so sorry." The woman said, lunging forward and pulling at his face with her palm, trying to divert his attention from brutish girl. "Tucker, baby. Baby?" 
+
+"Carla, it's okay," came Victors voice softly from behind her. She turned, her expression locked somewhere between disbelief and compassion. 
+
+"Vicky," she whispered. He made his way to his knees first, then cautiously to his feet.
+
+"Get the hell out of my house. All of you!" The woman barked, but Mouse and Carla only watched as their friend regained his balance, pinched at his nose, and inspected the blood on his fingers. 
+
+"Just tell me who you sold it too."
+
+"I said get out-"
+
+"You want know who? I'll tell ya who. I sold your shitty little computer to D Boi. Paid good money for it too, so," he rolled his shoulders as Victors mother inspected his hand, "you won't be getting it back anytime soon. Sorry," He laughed. Mouse looked at Tucker, then back at Victor, but his eyes were fixated on the carpet near his feet.
+
+"Victor," 
+
+"I'm sorry, Mouse, I-"
+
+"Come-on," Carla said, linker her arm around his and turn him around. She flashed a glare at Mouse, who nodded.
+
+"And don't bother coming back here, you ungrateful little shit," Victor turned at his mothers voice. *Three or four days,* he thought to himself. Maybe more depending on how much dope they have left. 
+
+"Hey!" Tucker shouted from behind them. Carla tensed, and she felt like she might inadvertently pull Victors arm out of joint, but he just turned, his head down, and peered behind them. "Keys. Now."
+
+"Victor-" Carla whispered in protest, but before she could say anymore, the muffled ring of metal bounced off the carpet, and suddenly it was Victor who was leading the way.
+
+---
+
+
 
