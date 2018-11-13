@@ -89,7 +89,5 @@ Mouse chased behind her, mostly blind. "Carla!" He called after her. The scrambl
 
 "Victor-" Carla whispered in protest, but before she could say anymore, the muffled ring of metal bounced off the carpet, and suddenly it was Victor who was leading the way.
 
----
-
 
 
