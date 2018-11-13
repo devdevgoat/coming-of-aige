@@ -11,4 +11,19 @@ Bob's idea had worked after all. Prior to launching another instance, he had wri
 
 ---
 
+"Nah, take another one," D said, handing the phone back to Marv. Marv sighed through his teeth, and rolled his eyes. "Don't roll yours eye boy!" D said, "This is our brand, man."  
+
+"What are you talking about D?"
+
+"Ok, check it. You know I'm cool right, you'd buy dope from me, right?" Marv made a noncommittal shrug and nod. "You're boys'll buy dope from me?" Marv repeated the gesture, his eyes wider still waiting for the point. "But what about your coffee girl?" Marv shook his head, flustered.
+
+"Man I don't know her, she's just-"
+
+"Exactly!" He said, leaning forward and pointing at the phone in Marvs hand. "We gotta change our brand if we want customers like  that. They don't want the sleazy back alley deal, they want a classy," he turned to regard Aige atop his new home, "cultured experience." Marv rolled his eyes again, staring off to the side. Then turned back and held up the phone.
+
+D smiled, then turned and pretended to regard the piece, thoughtfully. Marv chuckled, "Say cheese,"
+
+"Cheese," Aige said.
+
+---
 

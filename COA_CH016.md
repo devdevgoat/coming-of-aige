@@ -99,14 +99,6 @@ Mouse reached high into his closet and pulled down a large semi-clear storage co
 
 "Ok, so then what? It's not like he can just walk out and hop in the truck," Carla said, balling up the make shift first aid kit refuse into the palm of her hand.
 
-~~"Honestly, it doesn't really matter if you think about it," Mouse replied. "Even if we can't get him out, if we can communicate with him, it might be better if he stays there."~~
-
-~~"Really?" Victor said, a bit of surprise creeping into his voice.~~
-
-~~"Well, I mean, what's the likelihood that someone looking for him will look at a random drug dealers house?" ~~
-
-~~"No. I don't like it. We can't just leave him there," Carla said. Victor turned back to the colored toy in his hand, nodding slightly.~~
-
 Mouse didn't reply, his gaze shifting back to the keyboard.
 
 "Maybe Aige will know what to do," Wispy said, "If we can talk to him, then we can ask him to come up with a way out, right?" Mouse looked away from overly large screen, and nodded, a faint smile on his face. Victor smirked as well, tossing the unsolved cube back onto the side table.
@@ -117,7 +109,7 @@ A few more pecks at the keyboard, and Mouse yanked several cables out of the sid
 
 Wispy looked at the two boys, who shared the same expression. After a moment, Victor spoke. "Maybe she's right<!--need a better phrase here-->," he said looking to Mouse. Mouse lowered his head, then looked up at Wispy who was standing from the pile of electronics and boxes. But before he could speak, she was already slipping past them, following Carla.
 
----
+
 
 
 	
