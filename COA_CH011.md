@@ -23,14 +23,14 @@ After several hours, Mouse finally made his way out to the garage. As he expecte
 
 Less than hour later, he settled down in front of his TV, keyboard and mouse and hand, the screen completely black, save for a single blinking cursor in the top left corner. With a couple of commands, the screen erupted with activity and rapidly scrolling text. Dependencies installed, he began the tedious process of securing his communications, involving several local masking programs, followed by a number of remote servers, some real, some fake, and then finally some basic encryption. Satisfied, he sent off a chat invite, and the screen went black again, this time however, his cursor was at the bottom of the television.
 
-A: Busy
-M: It's important
-A: :sigh: 
-M: I need your help on a job
-A: ...
-M: I need to break into Sieve Co and figure out why they killed my father and then raided my house
-A: ...
-A: You should open with that next time... brb
+A: Busy  
+M: It's important  
+A: :sigh:   
+M: I need your help on a job  
+A: ...  
+M: I need to break into Sieve Co and figure out why they killed   my father and then raided my house  
+A: ...  
+A: You should open with that next time... brb  
 
 ---
 
